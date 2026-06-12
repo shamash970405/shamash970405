@@ -1,4 +1,5 @@
-#hello!!!!我是希爾owo
+# hello!!!!我是希爾owo
+是個可愛的女孩子呦><
 
 <img width="4000" height="3000" alt="20251210_212635" src="https://github.com/user-attachments/assets/ee4fb0d7-bbd4-44f3-80f3-58a633e44215" />
 （這是25年用ubuntu時拍的((
